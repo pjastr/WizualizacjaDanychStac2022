@@ -1,0 +1,1 @@
+# WizualizacjaDanychStac2022
